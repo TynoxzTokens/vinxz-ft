@@ -1,2 +1,0 @@
-# vinxz-ft
-efte
